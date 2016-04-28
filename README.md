@@ -1,2 +1,1 @@
-# Huber-Productions-Games
-This website is built for me to sell my games that I make and put some up for free.
+Hello, I am Huber Productions and I am a game designer wanting to sell games and earn a good amount of money from it too.
